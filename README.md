@@ -1,1 +1,1 @@
-im bored idk
+lazye is underratted, recommended to watch him!!
