@@ -4,3 +4,4 @@
 im just bored ok?
 minor - c+h with me!
 
+![Image](https://github.com/user-attachments/assets/2c720fde-3a9f-45d2-ad30-fb51ad2b57c4)
