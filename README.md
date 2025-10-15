@@ -5,5 +5,6 @@
 im just bored ok?
 minor - c+h with me!
 
-![Image](https://github.com/user-attachments/assets/65ebf057-8cca-48e3-8274-8b32621ac01b)
+im dumb
                                                                                                                                  ![Image](https://github.com/user-attachments/assets/3ce733a1-af8c-446e-9d93-c70e03148df8)
+                                                                                                                                ![Image](https://github.com/user-attachments/assets/65ebf057-8cca-48e3-8274-8b32621ac01b)
