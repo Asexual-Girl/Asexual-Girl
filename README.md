@@ -2,8 +2,8 @@
 ![Image](https://github.com/user-attachments/assets/6c45731a-ab0c-42da-a9aa-1fcd7e834db7)
 
 
-im just bored ok?
-minor - c+h with me!
+
+minor - i hate my age . ] c+h with me! [ [ asexual/aroace/genderfluid/ ] ]  ./. that fear of mine, so silly right? and if i say goodbye, its not like i'd d- /./
 
 im dumb
                                                                                                                                  ![Image](https://github.com/user-attachments/assets/3ce733a1-af8c-446e-9d93-c70e03148df8)
