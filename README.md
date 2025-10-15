@@ -1,2 +1,2 @@
-lazye is underratted, recommended to watch him!!
+YAYAYAY 100 FOLLOWERS ON GITHUB!!!!!!!!! THX SM!!!
 love yourself!!
