@@ -3,7 +3,7 @@
 
 
 
-minor - i hate my age . ] c+h with me! [ [ asexual/aroace/genderfluid/ ] ]  ./. that fear of mine, so silly right? and if i say goodbye, its not like i'd d- /./
+minor - i hate my age . ] c+h with me! [ [ asexual/aroace/genderfluid/ ] ]  ./. that fear of mine, so silly right? and if i say goodbye, its not like i'd d- HUG ME! HUG ME AND GOODBYE!! gosh i wish we had more time, we could learn and play all night, /what should we create /WHAT SHOULD WE CREA----TE /./
 
 im dumb
                                                                                                                                  ![Image](https://github.com/user-attachments/assets/3ce733a1-af8c-446e-9d93-c70e03148df8)
