@@ -8,5 +8,5 @@
 
                                                  Merry merry go run!
 ...
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/20f60ea2-17c2-41ae-afd9-91f3b2c912b0" />                                    so cutesy
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/7ab00d94-df4f-4c68-b990-fa63646d6d17" />                                                                                                                                                                              look at this little guy! [oc]
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/20f60ea2-17c2-41ae-afd9-91f3b2c912b0" />                                    
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/7ab00d94-df4f-4c68-b990-fa63646d6d17" />    look at this angel! [anyways just some art dump-]                                                                                                                                                                          
