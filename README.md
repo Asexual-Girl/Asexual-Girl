@@ -1,4 +1,5 @@
- <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/20f60ea2-17c2-41ae-afd9-91f3b2c912b0" />
+ <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/2a562745-7ca1-4336-ba7c-fb06ed52e598" />
+
 
                                                   # READ IT NOW..
 .                                         [ asexual | aroace | genderfluid ] 
