@@ -1,6 +1,6 @@
 <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/1bb2733f-4167-47bb-b639-33b78a456c67" /> 
 
-<img width="2048" height="1536" alt="Image" src="https://github.com/user-attachments/assets/5e8c78b6-6854-4268-9dd7-2cf65d87d071" /> ^_^ skittles and thomas ok? [drew it]
+<img width="2048" height="1536" alt="Image" src="https://github.com/user-attachments/assets/5e8c78b6-6854-4268-9dd7-2cf65d87d071" /> ^_^ skittles and thomas ok? 
 <img width="2048" height="1536" alt="Image" src="https://github.com/user-attachments/assets/29f2c763-bd84-4d32-8ec2-2ea405bcb4d3" /> paul's journey and beyond the shelf!
 ![Image](https://github.com/user-attachments/assets/4e14b019-f401-4d70-b1e1-e975a97a15c6) 
 
