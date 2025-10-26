@@ -1,5 +1,5 @@
 <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/1bb2733f-4167-47bb-b639-33b78a456c67" />
-![Image](https://github.com/user-attachments/assets/a130fe39-fa19-4127-a5c1-727822e694dd)
+-
 <img width="2048" height="1536" alt="Image" src="https://github.com/user-attachments/assets/29f2c763-bd84-4d32-8ec2-2ea405bcb4d3" /> paul's journey!
 
 ![Image](https://github.com/user-attachments/assets/606719af-6021-402d-ad73-0000a59c87a4)
