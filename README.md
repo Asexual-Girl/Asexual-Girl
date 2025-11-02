@@ -2,3 +2,4 @@
 
 ![Image](https://github.com/user-attachments/assets/ad50f3fd-c65d-4bff-be25-b331a28e511e)
 im ur couqutte! . dont u forget!                                                   
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/14e54ec5-a467-4500-ae13-c4e3933ae655" />
