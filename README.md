@@ -7,4 +7,5 @@ im ur couqutte! . dont u forget!        <img width="2048" height="2048" alt="Ima
 
 <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/14e54ec5-a467-4500-ae13-c4e3933ae655" />
 
-
+![Image](https://github.com/user-attachments/assets/267c9910-9515-43ab-835a-0128b9d75d57)
+hug me! hug me and goodbye! gosh we wish we had more time! we could learn and play all night!
