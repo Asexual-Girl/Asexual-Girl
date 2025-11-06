@@ -7,5 +7,5 @@
 ![Image](https://github.com/user-attachments/assets/e050d6b9-868c-4089-ab7c-70308f7435f1)
 cred to the artist!                                                                                                              
 ![Image](https://github.com/user-attachments/assets/847b3c5b-1e78-4598-b1bc-9ffec6d9a76d)
-![Image](https://github.com/user-attachments/assets/1e6be93f-1479-46a2-9c44-f2067e36f870)
+![Image](https://github.com/user-attachments/assets/1e6be93f-1479-46a2-9c44-f2067e36f870)![Image](https://github.com/user-attachments/assets/9eb6fd4b-8973-4d84-9814-6f6511863449)
 
