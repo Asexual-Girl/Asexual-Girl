@@ -14,6 +14,8 @@
                  
                        . ( Minor |who hasnt guessed-| idm if ur an adult, dont be weird tho )
 
+                                         # idc abt age so- feel free to int! #
+                                             
              !          ) asuxual / aroace : IM THE CEO OF HOWLNIGHTS!! |nobody cares loser (
 
         ?               @  dni : maps, pedos, fatphobics, homophobics, spawnism, and tcoaal @
