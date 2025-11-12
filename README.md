@@ -20,4 +20,4 @@
 
 <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/59718d41-1943-4901-804c-ed949c919840" />
 ________________________________________________________________________________________________________________________
-  @Black-Sh33p . @GAMBLEGHOST @blades-inmyhead @forgottenfeelings <- ily alphas !! -> @Z3ROFiFT1EEN @oatmiIky  @6ullets @Dylan-Astro @cybrpawz :more friends hehehh . 
+  @Black-Sh33p . @GAMBLEGHOST @blades-inmyhead @forgottenfeelings <- ily alphas !! -> @Z3ROFiFT1EEN @oatmiIky  @6ullets @Dylan-Astro @cybrpawz @LAUGHINGJ5CK :more friends hehehh . nixxynix pls come back wife /j
