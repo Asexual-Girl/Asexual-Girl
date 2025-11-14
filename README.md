@@ -8,9 +8,9 @@
 
             .                                        . hii im somi! .  
   
-        -             call me: 'cosplay' . somi . names i put in my user! . asexualgirl is fine!
+        -             / call me: 'cosplay' . somi . names i put in my user! . asexualgirl is fine! \
 
-                                #      if im annoying you in some way . pls lmk
+                                #     * if im annoying you in some way . pls lmk *
 
               *                    [ prns : any / pref she or him but you do you! ]
                  
