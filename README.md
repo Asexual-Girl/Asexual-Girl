@@ -22,7 +22,7 @@
 
             @  dni : maps, pedos, fatphobics, homophobics, spawnism, tcoaal, ageplayers [why act like a baby] @
 
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E6C8E2&width=435&lines=P%3A+Grr...;E%3A+Grrr....;P%3A+BWARF+BARK!!!!.;E%3A+BWORF%2C+AWOOOO!!!!.;P%3A+GRRAF...;E%3A+RUFF+RUFF-+Ok+pebble%2C+You+win..)](https://git.io/typing-svg)
 ________________________________________________________________________
 _[![Typing SVG](https://readme-typing-svg.demolab.com?font=Vanilla+Pancake&weight=500&size=21&pause=1000&color=E6D3D8&width=510&lines=E%3A+HI+ASTRO!!!.;A%3A+Hey+eclipse.;E%3A+How+are+your+'Main'+friends%3F.;A%3A+Eh-+they+are+alright!+yeah...;E%3A+Astro..+are+you+falling+asleep+again%3F;A%3A+*Snores*+WHA-+oh..+sorry!.;E%3A+Sighs..+maybe+next+floor+you+could+sleep%3F.;A%3A+*Yawns*+Alright...)](https://git.io/typing-svg)
 _________________________________________________________________________________
