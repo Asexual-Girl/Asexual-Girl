@@ -20,7 +20,7 @@
                                              
              !          ) asuxual / aroace : IM THE CEO OF HOWLNIGHTS!! |nobody cares loser (
 
-        ?               @  dni : maps, pedos, fatphobics, homophobics, spawnism, and tcoaal @
+            @  dni : maps, pedos, fatphobics, homophobics, spawnism, tcoaal, ageplayers [why act like a baby] @
 
 _________[![Typing SVG](https://readme-typing-svg.demolab.com?font=Vanilla+Pancake+Code&pause=1000&color=F1E1EA&width=800&lines=A%3A+Hey+fluffball!.;E%3A+Hi+Moonie!.;A%3A+Gourdy+said+that+he+dreamed+of+you+and+him+playing+pretend.;A%3A+You+were+running+like+crazy-;E%3A+Ooo!+so+he+was+like+a+cowboy%3F.;E%3A+And+i+was+running+like+a+pony%3F;A%3A+Yeah%2C+im+surprised+he+didnt+dream+about+his+parents..;E%3A+Hmm%3F.;A%3A+N-+NOTHING!!+haha..;E%3A+Alright+Nova!+ill+see+you+at+the+elevator+after+this!.;A%3A+eheh..+Alright+fluffers!.)](https://git.io/typing-svg)
 ________________________________________________________________________
