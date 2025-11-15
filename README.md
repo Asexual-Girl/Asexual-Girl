@@ -1,7 +1,7 @@
 
 <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/b7b3e6a5-1aec-4e3d-9172-759966447327" />
 
-<img width="200" height="95" alt="Image" src="https://github.com/user-attachments/assets/c6bddeb3-a96d-481a-98f1-087b397dfd48" /> guess who is the "untinted" one.. heh
+<img width="200" height="95" alt="Image" src="https://github.com/user-attachments/assets/c6bddeb3-a96d-481a-98f1-087b397dfd48" /> guess who is the "untinted" one.. heh ![Image](https://github.com/user-attachments/assets/5202d4fd-18c6-4ab4-b104-b7d1a254ef65)
 
 <img width="2048" height="1536" alt="Image" src="https://github.com/user-attachments/assets/4121acdf-ecbe-45db-a3f8-0df6780cd02c" />
 
