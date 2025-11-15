@@ -42,7 +42,7 @@ ______________________________________________________________________________
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=9F757F&width=500&lines=E%3A+ASTRO!!+WAKE+UP!!;A%3A+AHH-+augh..;A%3A+Please+never+do+that+again..;E%3A+Maybe+if+you+were+awake%2C+Sleepyhead..)](https://git.io/typing-svg)
 ______________________________________________________________________________
 
-                                                  Eclipse + Shrimpo
+                                                   Eclipse + Shrimpo
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=85546F&width=600&lines=S%3A+I+HATE+YOUR+MOON+CRYSTAL+THINGY!!!.;E%3A+Well%2C+when+will+you+fix+that+attitude...%3F;S%3A+WHEN+WILL+YOU+MIND+YOUR+BUSINESS%3F%3F!!.;E%3A+Ok+Mr.+anger+issues...;S%3A+SHUT+UP+ASTRO'S+LITTLE+PET-;E%3A+...)](https://git.io/typing-svg)
                                     
