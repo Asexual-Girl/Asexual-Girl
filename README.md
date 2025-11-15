@@ -38,17 +38,17 @@ ______________________________________________________________________________
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E6C8E2&width=435&lines=P%3A+Grr...;E%3A+Grrr....;P%3A+BWARF+BARK!!!!.;E%3A+BWORF%2C+AWOOOO!!!!.;P%3A+GRRAF...;E%3A+RUFF+RUFF-+Ok+pebble%2C+You+win..)](https://git.io/typing-svg)
 ______________________________________________________________________________
 
-                                                  Eclipse + Goob
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=D2A3BB&width=700&lines=G%3A+...;E%3A+...;G%3A+...;E%3A+...;G%3A+...;E%3A+This+is+too+quiet...)](https://git.io/typing-svg)
-______________________________________________________________________________
-
-
 
                                                   Eclipse + Glisten
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=D2BAC8&width=700&separator=%3C&lines=G%3A+Hmm..%3CE%3A+%3F.%3CG%3AYou+look+quite..+Fashionable...+%3CE%3A+Wait-+What%3F.%3CG%3A+The+moon+on+your+forehead..%3CG%3A+The+cape...%3CG%3A+The+style..%3CG%3A+It+Gives..+Werewolf.%3CE%3A+Glisten%2C+You+DO+know+im+a+werewolf..+Right%3F.%3CG%3A+WHA-+Duh%3F.+I+just+wanted+to+see+if+you'd+figure+it+out!.%3CE;+Sure+Glisten...+Sure.)](https://git.io/typing-svg)
 _____________________________________________________________________________
+
+                                                  Eclipse + Goob
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=D2A3BB&width=700&lines=G%3A+...;E%3A+...;G%3A+...;E%3A+...;G%3A+...;E%3A+This+is+too+quiet...)](https://git.io/typing-svg)
+______________________________________________________________________________
+
 
                                                 Astro + Eclipse [again]
 
