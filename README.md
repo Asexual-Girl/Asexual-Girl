@@ -21,7 +21,7 @@
              !          ) asuxual / aroace : IM THE CEO OF HOWLNIGHTS!! |nobody cares loser (
 
             @  dni : maps, pedos, fatphobics, homophobics, spawnism, tcoaal, ageplayers [why act like a baby] @
-
+ ________________________________________________________________________
                                                   Teagan + Eclipse
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=DCCED7&width=700&lines=E%3A+Woohoo!%2C+That+was+fun.;T%3A+Darling..+Arent+you+tired+already%3F.;E%3A+No+Ms.+Teagan%2C+Wolves+dont+really+get+tired+that+fast!.;T%3A+Well..+Want+some+tea+after+this%3F.;E%3A+Uh..+No+thanks+Ms.+Teagan..+Haha-)](https://git.io/typing-svg)
