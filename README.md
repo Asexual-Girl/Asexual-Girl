@@ -32,8 +32,10 @@ ______________________________________________________________________________
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=9F757F&width=500&lines=E%3A+ASTRO!!+WAKE+UP!!;A%3A+AHH-+augh..;A%3A+Please+never+do+that+again..;E%3A+Maybe+if+you+were+awake%2C+Sleepyhead..)](https://git.io/typing-svg)
 ______________________________________________________________________________
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=85546F&width=600&lines=S%3A+I+HATE+YOUR+MOON+CRYSTAL+THINGY!!!.;E%3A+Well%2C+when+will+you+fix+that+attitude...%3F;S%3A+WHEN+WILL+YOU+MIND+YOUR+BUSINESS%3F%3F!!.;E%3A+Ok+Mr.+anger+issues...;S%3A+SHUT+UP+ASTRO'S+LITTLE+PET-;E%3A+...)](https://git.io/typing-svg)
-
-                                        btw these are fan convos, so- they arent canon
+_______________________________________________________________________________
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=DCCED7&width=700&lines=E%3A+Woohoo!%2C+That+was+fun.;T%3A+Darling..+Arent+you+tired+already%3F.;E%3A+No+Ms.+Teagan%2C+Wolves+dont+really+get+tired+that+fast!.;T%3A+Well..+Want+some+tea+after+this%3F.;E%3A+Uh..+No+thanks+Ms.+Teagan..+Haha-)](https://git.io/typing-svg)
+                                    
+                                      btw these are fan convos, so- they arent canon
 
 <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/59718d41-1943-4901-804c-ed949c919840" />
 
