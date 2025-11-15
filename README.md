@@ -41,7 +41,10 @@ ______________________________________________________________________________
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=9F757F&width=500&lines=E%3A+ASTRO!!+WAKE+UP!!;A%3A+AHH-+augh..;A%3A+Please+never+do+that+again..;E%3A+Maybe+if+you+were+awake%2C+Sleepyhead..)](https://git.io/typing-svg)
 ______________________________________________________________________________
+                                                    Eclipse + Scraps
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=9A708E&width=435&lines=S%3A+So..+You're+a+wolf%3F.;E%3A+Duh!.;S%3A+Well..+Are+dogs+related+to+wolves%3F;E%3A+Wha-;S%3A+Just+asking!.;S%3A+Uh..+i+guess%3F.;S%3A+DING+DING+DING!!+My+answer+was+correct!.;E%3A+Uh..)](https://git.io/typing-svg)
+_____________________________________________________________________________
                                                    Eclipse + Shrimpo
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=85546F&width=600&lines=S%3A+I+HATE+YOUR+MOON+CRYSTAL+THINGY!!!.;E%3A+Well%2C+when+will+you+fix+that+attitude...%3F;S%3A+WHEN+WILL+YOU+MIND+YOUR+BUSINESS%3F%3F!!.;E%3A+Ok+Mr.+anger+issues...;S%3A+SHUT+UP+ASTRO'S+LITTLE+PET-;E%3A+...)](https://git.io/typing-svg)
