@@ -51,7 +51,7 @@ ______________________________________________________________________________
 
                                                     Eclipse + Scraps
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=9A708E&width=600&lines=S%3A+So..+You're+a+wolf%3F.;E%3A+Duh!.;S%3A+Well..+Are+dogs+related+to+wolves%3F;E%3A+Wha-;S%3A+Just+asking!.;S%3A+Uh..+i+guess%3F.;S%3A+DING+DING+DING!!+My+answer+was+correct!.;E%3A+Uh..)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=9A708E&width=600&lines=S%3A+So..+You're+a+wolf%3F.;E%3A+Duh!.;S%3A+Well..+Are+dogs+related+to+wolves%3F;E%3A+Wha-;S%3A+Just+asking!.;E%3A+Uh..+i+guess%3F.;S%3A+DING+DING+DING!!+My+answer+was+correct!.;E%3A+Uh..)](https://git.io/typing-svg)
 _____________________________________________________________________________
 
 
