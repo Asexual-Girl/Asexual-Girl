@@ -38,5 +38,5 @@ ______________________________________________________________________________
 <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/59718d41-1943-4901-804c-ed949c919840" />
 
 
-__<img width="2048" height="1536" alt="Image" src="https://github.com/user-attachments/assets/8dcb8e31-e59c-4ab6-8f31-2114f8acf69c" />___________________________________________________________________________________________________________
+<img width="2048" height="1536" alt="Image" src="https://github.com/user-attachments/assets/bd736bc8-9f8c-4446-a569-05a3e5339d20" />_________________________________________________________________________________________________________
 
