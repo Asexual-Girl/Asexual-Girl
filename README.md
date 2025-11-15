@@ -22,15 +22,28 @@
 
             @  dni : maps, pedos, fatphobics, homophobics, spawnism, tcoaal, ageplayers [why act like a baby] @
 
+                                                  Teagan + Eclipse
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=DCCED7&width=700&lines=E%3A+Woohoo!%2C+That+was+fun.;T%3A+Darling..+Arent+you+tired+already%3F.;E%3A+No+Ms.+Teagan%2C+Wolves+dont+really+get+tired+that+fast!.;T%3A+Well..+Want+some+tea+after+this%3F.;E%3A+Uh..+No+thanks+Ms.+Teagan..+Haha-)](https://git.io/typing-svg)
 ________________________________________________________________________
+
+                                                  Astro + Eclipse
+
 _[![Typing SVG](https://readme-typing-svg.demolab.com?font=Vanilla+Pancake&weight=500&size=21&pause=1000&color=E6D3D8&width=510&lines=E%3A+HI+ASTRO!!!.;A%3A+Hey+eclipse.;E%3A+How+are+your+'Main'+friends%3F.;A%3A+Eh-+they+are+alright!+yeah...;E%3A+Astro..+are+you+falling+asleep+again%3F;A%3A+*Snores*+WHA-+oh..+sorry!.;E%3A+Sighs..+maybe+next+floor+you+could+sleep%3F.;A%3A+*Yawns*+Alright...)](https://git.io/typing-svg)
 ______________________________________________________________________________
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E6C8E2&width=435&lines=P%3A+Grr...;E%3A+Grrr....;P%3A+BWARF+BARK!!!!.;E%3A+BWORF%2C+AWOOOO!!!!.;P%3A+GRRAF...;E%3A+RUFF+RUFF-+Ok+pebble%2C+You+win..)](https://git.io/typing-svg)
 
+                                                   Eclipse + Pebble
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E6C8E2&width=435&lines=P%3A+Grr...;E%3A+Grrr....;P%3A+BWARF+BARK!!!!.;E%3A+BWORF%2C+AWOOOO!!!!.;P%3A+GRRAF...;E%3A+RUFF+RUFF-+Ok+pebble%2C+You+win..)](https://git.io/typing-svg)
 ______________________________________________________________________________
+
+                                                Astro + Eclipse [again]
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=9F757F&width=500&lines=E%3A+ASTRO!!+WAKE+UP!!;A%3A+AHH-+augh..;A%3A+Please+never+do+that+again..;E%3A+Maybe+if+you+were+awake%2C+Sleepyhead..)](https://git.io/typing-svg)
 ______________________________________________________________________________
+
+                                                  Eclipse + Shrimpo
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=85546F&width=600&lines=S%3A+I+HATE+YOUR+MOON+CRYSTAL+THINGY!!!.;E%3A+Well%2C+when+will+you+fix+that+attitude...%3F;S%3A+WHEN+WILL+YOU+MIND+YOUR+BUSINESS%3F%3F!!.;E%3A+Ok+Mr.+anger+issues...;S%3A+SHUT+UP+ASTRO'S+LITTLE+PET-;E%3A+...)](https://git.io/typing-svg)
                                     
                                       btw these are fan convos, so- they arent canon
