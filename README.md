@@ -11,6 +11,9 @@ they love eachother trust
 
 <img width="2048" height="1536" alt="Image" src="https://github.com/user-attachments/assets/4121acdf-ecbe-45db-a3f8-0df6780cd02c" />
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yuf3tzo6nz3dokbzfysodjxoga&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yuf3tzo6nz3dokbzfysodjxoga&redirect=true)
+
+
             .                                        . hii im somi! .  
   
         -             / call me: 'cosplay' . somi . names i put in my user! . asexualgirl is fine! \
