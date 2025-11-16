@@ -1,6 +1,8 @@
 
 <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/b7b3e6a5-1aec-4e3d-9172-759966447327" />
 
+[![spotify-github-profile](https://spotify-github-profile.Asexual-Girl.com/api/view?uid=31yuf3tzo6nz3dokbzfysodjxoga&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yuf3tzo6nz3dokbzfysodjxoga&redirect=true)
+
 [![Hits](https://hits.sh/github.com/Asexual-Girl/hits.svg?label=Astro's%20wife%20-%20Eclipse&color=531838&labelColor=c69cb5)](https://hits.sh/github.com/Asexual-Girl/hits/) [![Hits](https://hits.sh/github.com/bassieirl/hits.svg?label=Eclipse's%20husband%20-%20Astro&color=531838&labelColor=c69cb5)](https://hits.sh/github.com/bassieirl/hits/)
 
 <img width="200" height="95" alt="Image" src="https://github.com/user-attachments/assets/c6bddeb3-a96d-481a-98f1-087b397dfd48" /> guess who is the "untinted" one.. heh
