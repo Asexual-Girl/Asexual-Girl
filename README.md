@@ -13,7 +13,6 @@ they love eachother trust
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yuf3tzo6nz3dokbzfysodjxoga&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yuf3tzo6nz3dokbzfysodjxoga&redirect=true)
 
-
             .                                        . hii im somi! .  
   
         -             / call me: 'cosplay' . somi . names i put in my user! . asexualgirl is fine! \
