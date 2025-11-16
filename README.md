@@ -8,7 +8,6 @@
 ![Image](https://github.com/user-attachments/assets/ec56b23e-6985-41e2-9485-a72f489ecf37)![Image](https://github.com/user-attachments/assets/b6f01551-bc97-4618-b24f-d2a2ea658938)
 they love eachother trust
 
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/ef7d6054-31bf-489f-b01e-d8e54ba4fd51" /> me when i lock in:
 
 <img width="2048" height="1536" alt="Image" src="https://github.com/user-attachments/assets/4121acdf-ecbe-45db-a3f8-0df6780cd02c" />
 
