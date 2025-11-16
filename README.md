@@ -1,6 +1,8 @@
 
 <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/b7b3e6a5-1aec-4e3d-9172-759966447327" />
 
+[![Hits](https://hits.sh/github.com/bassieirl/hits.svg?label=Astro's%20wife%20-%20Eclipse&color=531838&labelColor=c69cb5)](https://hits.sh/github.com/bassieirl/hits/) [![Hits](https://hits.sh/github.com/bassieirl/hits.svg?label=Eclipse's%20husband%20-%20Astro&color=531838&labelColor=c69cb5)](https://hits.sh/github.com/bassieirl/hits/)
+
 <img width="200" height="95" alt="Image" src="https://github.com/user-attachments/assets/c6bddeb3-a96d-481a-98f1-087b397dfd48" /> guess who is the "untinted" one.. heh
 
  ![Image](https://github.com/user-attachments/assets/5202d4fd-18c6-4ab4-b104-b7d1a254ef65)![Image](https://github.com/user-attachments/assets/0f47a1ad-b3ed-4f99-80b6-fed032d70141)
