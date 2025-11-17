@@ -1,5 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=A6A6A6&width=600&lines=R%3A+THIS+IS+THE+ILL+SAY+MY+NAME!!;D%3A+%5BSay+my+name...%5D;R%3A+IVE+MADE+MISTAKES+BUT+IM+NOT+ASHAMED!!!!;D%3A+%5BNot+ashamed...%5D;R%3A+NOW+AM+I+LOUD+ENOUGH+TO+HEAR+MY+NAME%3F%3F%3F%3F%3F+;D%3A+%5BHear+my+name...%5D;R%3A+IVE+MADE+MISTAKES+BUT+IM+NOT+ASHAMED!!!!;D%3A+%5BNot+ashamed...%5D)](https://git.io/typing-svg)
 
+<img width="666" height="375" alt="Image" src="https://github.com/user-attachments/assets/2efc14cb-9784-4ea3-a058-63aa865f01b9" /> 
 
             .                                        . hii im somi! .  
   
