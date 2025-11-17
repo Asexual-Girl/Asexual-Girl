@@ -2,6 +2,8 @@
 
 <img width="666" height="375" alt="Image" src="https://github.com/user-attachments/assets/2efc14cb-9784-4ea3-a058-63aa865f01b9" /> 
 
+<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/e5dd94ec-7cc3-4d2d-b707-9546d9a0cf0c" />
+
             .                                        . hii im somi! .  
   
         -             / call me: 'cosplay' . somi . names i put in my user! . asexualgirl is fine! \
