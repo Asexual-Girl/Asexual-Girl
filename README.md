@@ -2,7 +2,7 @@
 
 <img width="666" height="375" alt="Image" src="https://github.com/user-attachments/assets/2efc14cb-9784-4ea3-a058-63aa865f01b9" /> 
 
-<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/e5dd94ec-7cc3-4d2d-b707-9546d9a0cf0c" />
+<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/e5dd94ec-7cc3-4d2d-b707-9546d9a0cf0c" /> <img width="256" height="256" alt="Image" src="https://github.com/user-attachments/assets/8a483bd0-d43f-43ff-9815-4a46b72b6f78" />
 
             .                                        . hii im somi! .  
   
