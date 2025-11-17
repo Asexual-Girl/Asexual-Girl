@@ -23,6 +23,5 @@
 ___________________________________________________________________
 <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/40617b2b-a794-4983-8364-53f5ebc4a425" /> how many styles do i have...?
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yuf3tzo6nz3dokbzfysodjxoga&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yuf3tzo6nz3dokbzfysodjxoga&redirect=true)
 
  <img width="1200" height="216" alt="Image" src="https://github.com/user-attachments/assets/28a05ef6-20a1-4193-97a5-136266fbc768" />
