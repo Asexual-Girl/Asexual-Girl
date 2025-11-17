@@ -3,7 +3,9 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yuf3tzo6nz3dokbzfysodjxoga&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yuf3tzo6nz3dokbzfysodjxoga&redirect=true)
 
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/40617b2b-a794-4983-8364-53f5ebc4a425" />
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/40617b2b-a794-4983-8364-53f5ebc4a425" /> how many styles do i have...?
+
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/4394dddb-5973-40e2-b989-1500eb68c0c4" /> THIS RENTRY IDK THINGY IS A WIP AUHGGHJIUGHJED
 
             .                                        . hii im somi! .  
   
