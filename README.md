@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4C4F8B&width=435&lines=R%3A+THIS+IS+THE+ILL+SAY+MY+NAME!!;D%3A+%5BSay+my+name...%5D;R%3A+IVE+MADE+MISTAKES+BUT+IM+NOT+ASHAMED!!!!;D%3A+%5BNot+ashamed...%5D;R%3A+NOW+AM+I+LOUD+ENOUGH+TO+HEAR+MY+NAME%3F%3F%3F%3F%3F+;D%3A+%5BHear+my+name...%5D;R%3A+IVE+MADE+MISTAKES+BUT+IM+NOT+ASHAMED!!!!;D%3A+%5BNot+ashamed...%5D)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4C4F8B&width=600&lines=R%3A+THIS+IS+THE+ILL+SAY+MY+NAME!!;D%3A+%5BSay+my+name...%5D;R%3A+IVE+MADE+MISTAKES+BUT+IM+NOT+ASHAMED!!!!;D%3A+%5BNot+ashamed...%5D;R%3A+NOW+AM+I+LOUD+ENOUGH+TO+HEAR+MY+NAME%3F%3F%3F%3F%3F+;D%3A+%5BHear+my+name...%5D;R%3A+IVE+MADE+MISTAKES+BUT+IM+NOT+ASHAMED!!!!;D%3A+%5BNot+ashamed...%5D)](https://git.io/typing-svg)
 
 <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/4394dddb-5973-40e2-b989-1500eb68c0c4" /> THIS RENTRY IDK THINGY IS A WIP AUHGGHJIUGHJED
 
