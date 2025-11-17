@@ -1,15 +1,5 @@
 
-<img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/b7b3e6a5-1aec-4e3d-9172-759966447327" />
 
-[![Hits](https://hits.sh/github.com/Asexual-Girl/hits.svg?label=Astro's%20wife%20-%20Eclipse&color=531838&labelColor=c69cb5)](https://hits.sh/github.com/Asexual-Girl/hits/) [![Hits](https://hits.sh/github.com/bassieirl/hits.svg?label=Eclipse's%20husband%20-%20Astro&color=531838&labelColor=c69cb5)](https://hits.sh/github.com/bassieirl/hits/)
-
-<img width="200" height="95" alt="Image" src="https://github.com/user-attachments/assets/c6bddeb3-a96d-481a-98f1-087b397dfd48" /> guess who is the "untinted" one.. heh
-
-![Image](https://github.com/user-attachments/assets/ec56b23e-6985-41e2-9485-a72f489ecf37)![Image](https://github.com/user-attachments/assets/b6f01551-bc97-4618-b24f-d2a2ea658938)
-they love eachother trust
-
-
-<img width="2048" height="1536" alt="Image" src="https://github.com/user-attachments/assets/4121acdf-ecbe-45db-a3f8-0df6780cd02c" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yuf3tzo6nz3dokbzfysodjxoga&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yuf3tzo6nz3dokbzfysodjxoga&redirect=true)
 
@@ -72,9 +62,3 @@ ______________________________________________________________________________
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=85546F&width=600&lines=S%3A+I+HATE+YOUR+MOON+CRYSTAL+THINGY!!!.;E%3A+Well%2C+when+will+you+fix+that+attitude...%3F;S%3A+WHEN+WILL+YOU+MIND+YOUR+BUSINESS%3F%3F!!.;E%3A+Ok+Mr.+anger+issues...;S%3A+SHUT+UP+ASTRO'S+LITTLE+PET-;E%3A+...)](https://git.io/typing-svg)
                                     
                                       btw these are fan convos, so- they arent canon
-
-<img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/59718d41-1943-4901-804c-ed949c919840" />
-
-
-<img width="2048" height="1536" alt="Image" src="https://github.com/user-attachments/assets/bd736bc8-9f8c-4446-a569-05a3e5339d20" />_________________________________________________________________________________________________________
-
