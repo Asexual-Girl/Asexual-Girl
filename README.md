@@ -1,6 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FFE1C9&width=750&lines=Razzle%3A+I+am+comedy!+I+make+people+laugh!;+laughing+is+a+good+thing+for+your+health!;Who+cares+about+what+people+think%3F+be+happy!+Find+your+humor!)](https://git.io/typing-svg)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=8674AC&width=750&lines=Razzle%3A+I+am+comedy!+I+make+people+laugh!;+laughing+is+a+good+thing+for+your+health!;Who+cares+about+what+people+think%3F+be+happy!+Find+your+humor!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=8674AC&width=750&lines=Dazzle%3A+I+am+tragedy%2C+I+make+people+sad%2C;Just+realize+how+sad+this+world+is%2C;%5Bsomi%3A+idk+what+to+do+eh%5D)](https://git.io/typing-svg)
 
 <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/4182f40b-5291-4adc-a6d9-5c1dcdd46efc" /> CREDIT TO GUMMY @cybrpawz THXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHX UHDNIKSEJIDBHJDHCBHYWB2ECD!!!
 
