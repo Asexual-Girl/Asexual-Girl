@@ -21,3 +21,5 @@ ___________________________________________________________________
             @  dni : maps, pedos, fatphobics, homophobics, spawnism, tcoaal, ageplayers [why act like a baby] @
 ___________________________________________________________________
                                                          FAN CONVO!
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FB9B9B&width=600&lines=V%3A+...;R%26D%3A+...+%5BH-+hey+vee...%5D;V%3A+Not+talking+to+both+of+you+guys%2C+;R%26D%3A+OK+OK+WE'RE+SORRY!!!+%5BWE+DIDNT+MEAN+IT...%5D;V%3A+YOU+LITERALLY+CHEATED+IN+MY+SHOW!!;V%3A+ON+LIVE!!!!;R%26D%3A+IT+WAS+DAZZLE'S+IDEA!!+%5BNO+IT+WAS+HIS+IDEA!!!%5D;V%3A+BANNED%2C+ON+MY+SHOW!!;R%26D%3A+WE+ARE+SORRY!+%5BWE+ARE+SO+SO+SO+SORRY!!%5D;V%3A+Sighs..+fine-+Another+chance%2C+But+dont+dare+cheat+again..;R%26D%3A+THANK+YOU+VEE!!+%5BPHEW..+WONT+FORGET+IT!%5D)](https://git.io/typing-svg)
