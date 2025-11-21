@@ -5,6 +5,8 @@
 
 <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/4182f40b-5291-4adc-a6d9-5c1dcdd46efc" /> CREDIT TO GUMMY @cybrpawz THXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHX UHDNIKSEJIDBHJDHCBHYWB2ECD!!! BUY THEIR COMS OR ELSE IM GOING TO STAB YOU WITH A BUTTER KNIFE
 
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/4309e15d-720a-4301-a6bf-1a8966d13d9a" /> was waiting to use ts- TYSM FOR 200 FOLLOWERS ON GITHUB YAYAYAYAYA!!!
+
 <img width="327" height="176" alt="Image" src="https://github.com/user-attachments/assets/b3400bd3-6fb5-4340-b147-2949277caff1" /> WTF IS THIS RYTH THUMBNAIL, 
 ________________________________________________________________
 
