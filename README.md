@@ -9,7 +9,7 @@ ________________________________________________________________
 ________________________________________________________________
 【﻿𝙍＆𝘿：　𝘿𝙖𝙯𝙯𝙡𝙚，　𝙖𝙧𝙚　𝙮𝙤𝙪　𝙤𝙠？　[𝘿𝙤　𝙮𝙤𝙪　𝙩𝙝𝙞𝙣𝙠　𝙞𝙢　𝙖𝙡𝙧𝙞𝙜𝙝𝙩．．？]】
 ________________________________________________________________
-
+💡
 Brightney: Hey guys!
 _____
 Razzle & Dazzle: HI BRIGHTY!!! [hey!..]
@@ -21,7 +21,7 @@ _____
 Brightney: Its "How to light a bulb 2"
 _____
 Razzle & Dazzle: UH- NO THANKS.. MAYBE NEXT TIME- [YEAH... EHEHE-]
-_____
+_____👻
 Connie: Hey Razzle and D.
 _____
 Razzle & Dazzle: Hi Connie! [What do you mean by "D."?]
