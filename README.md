@@ -21,8 +21,8 @@ _____
 Brightney: Its "How to light a bulb 2"
 _____
 Razzle & Dazzle: UH- NO THANKS.. MAYBE NEXT TIME- [YEAH... EHEHE-]
-_____👻
-Connie: Hey Razzle and D.
+_____
+👻Connie: Hey Razzle and D.
 _____
 Razzle & Dazzle: Hi Connie! [What do you mean by "D."?]
 _____
