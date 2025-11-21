@@ -21,3 +21,14 @@ _____
 Brightney: Its "How to light a bulb 2"
 _____
 Razzle & Dazzle: UH- NO THANKS.. MAYBE NEXT TIME- [YEAH... EHEHE-]
+~~
+Connie: Hey Razzle and D.
+_____
+Razzle & Dazzle: Hi Connie! [What do you mean by "D."?]
+_____
+Connie: heh- DEEZ NUTS!
+_____
+Connie: HAHAHAHAH!!!!
+_____
+Razzle & Dazzle: Haha- Dazzle dont take it seriously... [That's the reason why you were created without no legs...]
+_____
