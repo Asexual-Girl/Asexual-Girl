@@ -9,26 +9,26 @@ ________________________________________________________________
 ________________________________________________________________
 【﻿𝙍＆𝘿：　𝘿𝙖𝙯𝙯𝙡𝙚，　𝙖𝙧𝙚　𝙮𝙤𝙪　𝙤𝙠？　[𝘿𝙤　𝙮𝙤𝙪　𝙩𝙝𝙞𝙣𝙠　𝙞𝙢　𝙖𝙡𝙧𝙞𝙜𝙝𝙩．．？]】
 ________________________________________________________________
-💡
-Brightney: Hey guys!
+
+💡Brightney: Hey guys!
 _____
-Razzle & Dazzle: HI BRIGHTY!!! [hey!..]
+🎭Razzle & Dazzle: HI BRIGHTY!!! [hey!..]
 _____
-Brightney: Wanna hear about the new book?
+💡Brightney: Wanna hear about the new book?
 _____
-Razzle & Dazzle: What book? [Oh no..]
+🎭Razzle & Dazzle: What book? [Oh no..]
 _____
-Brightney: Its "How to light a bulb 2"
+💡Brightney: Its "How to light a bulb 2"
 _____
-Razzle & Dazzle: UH- NO THANKS.. MAYBE NEXT TIME- [YEAH... EHEHE-]
+🎭Razzle & Dazzle: UH- NO THANKS.. MAYBE NEXT TIME- [YEAH... EHEHE-]
 _____
 👻Connie: Hey Razzle and D.
 _____
-Razzle & Dazzle: Hi Connie! [What do you mean by "D."?]
+🎭Razzle & Dazzle: Hi Connie! [What do you mean by "D."?]
 _____
-Connie: heh- DEEZ NUTS!
+👻Connie: heh- DEEZ NUTS!
 _____
-Connie: HAHAHAHAH!!!!
+👻Connie: HAHAHAHAH!!!!
 _____
-Razzle & Dazzle: Haha- Dazzle dont take it seriously... [That's the reason why you were created without no legs...]
+🎭Razzle & Dazzle: Haha- Dazzle dont take it seriously... [That's the reason why you were created without no legs...]
 _____
