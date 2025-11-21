@@ -1,11 +1,10 @@
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/4309e15d-720a-4301-a6bf-1a8966d13d9a" /> was waiting to use ts- TYSM FOR 200 FOLLOWERS ON GITHUB YAYAYAYAYA!!!
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FFE1C9&width=750&lines=Razzle%3A+I+am+comedy!+I+make+people+laugh!;+laughing+is+a+good+thing+for+your+health!;Who+cares+about+what+people+think%3F+be+happy!+Find+your+humor!)](https://git.io/typing-svg)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=8674AC&width=750&lines=Dazzle%3A+I+am+tragedy%2C+I+make+people+sad%2C;Just+realize+how+sad+this+world+is%2C;%5Bsomi%3A+idk+what+to+do+eh%5D)](https://git.io/typing-svg)
 
 <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/4182f40b-5291-4adc-a6d9-5c1dcdd46efc" /> CREDIT TO GUMMY @cybrpawz THXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHX UHDNIKSEJIDBHJDHCBHYWB2ECD!!! BUY THEIR COMS OR ELSE IM GOING TO STAB YOU WITH A BUTTER KNIFE
-
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/4309e15d-720a-4301-a6bf-1a8966d13d9a" /> was waiting to use ts- TYSM FOR 200 FOLLOWERS ON GITHUB YAYAYAYAYA!!!
 
 <img width="327" height="176" alt="Image" src="https://github.com/user-attachments/assets/b3400bd3-6fb5-4340-b147-2949277caff1" /> WTF IS THIS RYTH THUMBNAIL, 
 ________________________________________________________________
