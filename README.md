@@ -4,7 +4,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=8674AC&width=750&lines=Dazzle%3A+I+am+tragedy%2C+I+make+people+sad%2C;Just+realize+how+sad+this+world+is%2C;%5Bsomi%3A+idk+what+to+do+eh%5D)](https://git.io/typing-svg)
 
 <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/4182f40b-5291-4adc-a6d9-5c1dcdd46efc" /> CREDIT TO GUMMY @cybrpawz THXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHX UHDNIKSEJIDBHJDHCBHYWB2ECD!!! BUY THEIR COMS OR ELSE IM GOING TO STAB YOU WITH A BUTTER KNIFE
-
+_______________________________________________________________
 UGH I HATE THE FACT THAT ITS SO GOOD AJUHJFEHEIWDJFIDJDJD TYSM CONNIE!!!!! @GAMBLEGHOST
 <img width="736" height="833" alt="Image" src="https://github.com/user-attachments/assets/2f2ca3b1-53b2-46f3-8068-34fe5b25a58a" />
 ________________________________________________________________
