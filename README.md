@@ -1,17 +1,3 @@
-RAZ & DAZ!:
-___________
-Razzle and Dazzle Maskwell, they are the twin masks, Kids always mistake Razzle with Dazzle, and Dazzle with Razzle'
-____________
-They are also known as "Comedy & Tragedy" 
-____________
-They are the first characters to be 2 heads in one body'
-____________
-They were invited by "Looey" to be apart of the circus show, [and ts the reason why me and my ex bff shipped them]
-____________
-[𝗛𝗘𝗔𝗗𝗖𝗔𝗡𝗢𝗡]:
-____________
-Their ribbon neck gets tangled everytime, One moment they are absolutely fine, The next moment they are tangled up
-____________
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FFE1C9&width=750&lines=Razzle%3A+I+am+comedy!+I+make+people+laugh!;+laughing+is+a+good+thing+for+your+health!;Who+cares+about+what+people+think%3F+be+happy!+Find+your+humor!)](https://git.io/typing-svg)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=8674AC&width=750&lines=Dazzle%3A+I+am+tragedy%2C+I+make+people+sad%2C;Just+realize+how+sad+this+world+is%2C;%5Bsomi%3A+idk+what+to+do+eh%5D)](https://git.io/typing-svg)
@@ -48,4 +34,21 @@ _____
 👻Connie: HAHAHAHAH!!!!
 _____
 🎭Razzle & Dazzle: Haha- Dazzle dont take it seriously... [That's the reason why you were created without no legs...]
+___________
+RAZ & DAZ!:
+___________
+Razzle and Dazzle Maskwell, they are the twin masks, Kids always mistake Razzle with Dazzle, and Dazzle with Razzle'
+____________
+They are also known as "Comedy & Tragedy" 
+____________
+They are the first characters to be 2 heads in one body'
+____________
+They were invited by "Looey" to be apart of the circus show, [and ts the reason why me and my ex bff shipped them]
+____________
+[𝗛𝗘𝗔𝗗𝗖𝗔𝗡𝗢𝗡]:
+____________
+Their ribbon neck gets tangled everytime, One moment they are absolutely fine, The next moment they are tangled up
+____________
+
+
 _____
