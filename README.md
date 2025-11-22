@@ -4,10 +4,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=8674AC&width=750&lines=Dazzle%3A+I+am+tragedy%2C+I+make+people+sad%2C;Just+realize+how+sad+this+world+is%2C;%5Bsomi%3A+idk+what+to+do+eh%5D)](https://git.io/typing-svg)
 
 <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/4182f40b-5291-4adc-a6d9-5c1dcdd46efc" /> CREDIT TO GUMMY @cybrpawz THXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHXTHX UHDNIKSEJIDBHJDHCBHYWB2ECD!!! BUY THEIR COMS OR ELSE IM GOING TO STAB YOU WITH A BUTTER KNIFE
-
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/4309e15d-720a-4301-a6bf-1a8966d13d9a" /> was waiting to use ts- TYSM FOR 200 FOLLOWERS ON GITHUB YAYAYAYAYA!!!
-
-<img width="327" height="176" alt="Image" src="https://github.com/user-attachments/assets/b3400bd3-6fb5-4340-b147-2949277caff1" /> WTF IS THIS RYTH THUMBNAIL, 
 ________________________________________________________________
 
 🎭🎈𝘽𝙔𝙇: 𝙄𝙈 𝙏𝙃𝙀 𝘾𝙀𝙊 𝙊𝙁 𝘽𝙇𝙊𝙊𝙈𝙄𝙉𝙂𝙈𝙀𝙇𝙊𝘿𝙔 [𝘽𝙖𝙨𝙨𝙞𝙚 𝙭 𝘽𝙤𝙭𝙩𝙚𝙣], 𝙃𝙊𝙒𝙇𝙉𝙄𝙂𝙃𝙏 [𝙀𝙘𝙡𝙞𝙥𝙨𝙚 𝙭 𝘼𝙨𝙩𝙧𝙤] 𝙍𝙄𝘽𝘽𝙊𝙉𝘾𝙇𝙊𝙒𝙉 [𝙍&𝘿 𝙭 𝙇𝙤𝙤𝙚𝙮] 𝘼𝙉𝘿 𝙃𝘼𝙐𝙉𝙏𝙀𝘿𝙇𝘼𝙈𝙋 [𝘽𝙧𝙞𝙜𝙝𝙩𝙣𝙚𝙮 𝙭 𝘾𝙤𝙣𝙣𝙞𝙚] 𝙞𝙩𝙨 𝙤𝙠 𝙞𝙛 𝙮𝙤𝙪 𝙝𝙖𝙩𝙚 𝙞𝙩, 𝙟𝙪𝙨𝙩 𝙙𝙤𝙣𝙩 𝙝𝙖𝙧𝙖𝙨𝙨 𝙢𝙚 𝙞𝙛 𝙪 𝙙𝙤𝙣𝙩 𝙡𝙞𝙠𝙚 𝙞𝙩! - 𝙎𝙤𝙢𝙞
