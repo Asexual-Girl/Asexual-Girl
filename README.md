@@ -7,6 +7,8 @@ _______________________________________________________________
 UGH I HATE THE FACT THAT ITS SO GOOD AJUHJFEHEIWDJFIDJDJD TYSM CONNIE!!!!! @GAMBLEGHOST
 <img width="736" height="833" alt="Image" src="https://github.com/user-attachments/assets/2f2ca3b1-53b2-46f3-8068-34fe5b25a58a" />
 ________________________________________________________________
+gigi is still a wip.. [this is for @GAMBLEGHOST augh]
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/c2b1b632-d670-4db2-a202-0ce5a49fb603" />
 
 🎭🎈𝘽𝙔𝙇: 𝙄𝙈 𝙏𝙃𝙀 𝘾𝙀𝙊 𝙊𝙁 𝘽𝙇𝙊𝙊𝙈𝙄𝙉𝙂𝙈𝙀𝙇𝙊𝘿𝙔 [𝘽𝙖𝙨𝙨𝙞𝙚 𝙭 𝘽𝙤𝙭𝙩𝙚𝙣], 𝙃𝙊𝙒𝙇𝙉𝙄𝙂𝙃𝙏 [𝙀𝙘𝙡𝙞𝙥𝙨𝙚 𝙭 𝘼𝙨𝙩𝙧𝙤] 𝙍𝙄𝘽𝘽𝙊𝙉𝘾𝙇𝙊𝙒𝙉 [𝙍&𝘿 𝙭 𝙇𝙤𝙤𝙚𝙮] 𝘼𝙉𝘿 𝙃𝘼𝙐𝙉𝙏𝙀𝘿𝙇𝘼𝙈𝙋 [𝘽𝙧𝙞𝙜𝙝𝙩𝙣𝙚𝙮 𝙭 𝘾𝙤𝙣𝙣𝙞𝙚] 𝙞𝙩𝙨 𝙤𝙠 𝙞𝙛 𝙮𝙤𝙪 𝙝𝙖𝙩𝙚 𝙞𝙩, 𝙟𝙪𝙨𝙩 𝙙𝙤𝙣𝙩 𝙝𝙖𝙧𝙖𝙨𝙨 𝙢𝙚 𝙞𝙛 𝙪 𝙙𝙤𝙣𝙩 𝙡𝙞𝙠𝙚 𝙞𝙩! - 𝙎𝙤𝙢𝙞
 ________________________________________________________________
@@ -34,7 +36,7 @@ _____
 👻Connie: HAHAHAHAH!!!!
 _____
 🎭Razzle & Dazzle: Haha- Dazzle dont take it seriously... [That's the reason why you were created without no legs...]
-___________
+_____
 RAZ & DAZ!:
 ___________
 Razzle and Dazzle Maskwell, they are the twin masks, Kids always mistake Razzle with Dazzle, and Dazzle with Razzle'
@@ -49,6 +51,3 @@ ____________
 ____________
 Their ribbon neck gets tangled everytime, One moment they are absolutely fine, The next moment they are tangled up
 ____________
-
-
-_____
