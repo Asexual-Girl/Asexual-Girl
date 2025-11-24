@@ -5,6 +5,7 @@ __________________
 <img width="1500" height="500" alt="Untitled63_20251124041024" src="https://github.com/user-attachments/assets/0b9e421d-6809-47bb-a1bc-0f7f48b2620c" />
 
 
+
 [![Hits](https://hits.sh/github.com/Asexual-Girl/hits.svg?label=%E2%82%9A%E1%B5%A4%E2%82%9Ac%E1%B5%A4%E2%82%9A%20!&extraCount=200&color=a7bfcf&labelColor=e9eece)](https://hits.sh/github.com/Asexual-Girl/hits/)
 
 twin made a sigma graphic yay
