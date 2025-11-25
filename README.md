@@ -1,4 +1,5 @@
-<img width="370" height="320" alt="Untitled62_20251124030138" src="https://github.com/user-attachments/assets/b916c6f4-03d3-4643-b900-948695579139" /> pauls journey eheheh | <img width="2048" height="2048" alt="Untitled64_20251125092611" src="https://github.com/user-attachments/assets/88a5e4b8-7280-478b-92f6-2e3e724472f0" />
+<img width="370" height="320" alt="Untitled62_20251124030138" src="https://github.com/user-attachments/assets/b916c6f4-03d3-4643-b900-948695579139" /> pauls journey eheheh | <img width="2048" height="1536" alt="Untitled65_20251125092908" src="https://github.com/user-attachments/assets/67d7268d-9c66-426d-911b-d4b4ef729c25" />
+
 
 
 <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/39be39bd-68a0-400c-9714-80ce07d7a365" />
