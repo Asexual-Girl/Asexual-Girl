@@ -1,14 +1,25 @@
 [idk rant:]
+_____________________________________________
 proshippers + darkshippers should dark/proship privately, you lit cant just be in public doing these stuff
+_____________________________________________
 if you know you are gonna get judged, then why dont you do it privately?
+_____________________________________________
 atp shipping minor x adult, relatives, animal x person is alr bad enough
+_____________________________________________
 pro/darkshipping are one of the reason why some fandoms just becomes doomed, like forsaken
+_____________________________________________
 being a creep / freak isnt good
+_____________________________________________
 dont even SAY anything abt it being "fiction"
+_____________________________________________
 that's like saying "oh i ship siblings, b- but its fiction!!"
+_____________________________________________
 fiction wont make it better, you are ruining fandoms [unless ur in the tcoaal, its already far gone-]
+_____________________________________________
 just- stop being comfy, ragebait or not, fiction or not, people will gen look at you in disgust
+_____________________________________________
 so just.. do these unholy things somewhere where no one will judge you, but you still arent a good person for it
+
 anylays, bye bye!!!
 _____________________________________________
 
