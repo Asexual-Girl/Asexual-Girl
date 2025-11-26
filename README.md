@@ -8,7 +8,7 @@ atp shipping minor x adult, relatives, animal x person is alr bad enough
 _____________________________________________
 pro/darkshipping are one of the reason why some fandoms just become doomed, like forsaken
 _____________________________________________
-being a creep / freak isnt good
+being a creep / pervert isnt good
 _____________________________________________
 dont even SAY anything abt it being "fiction"
 _____________________________________________
