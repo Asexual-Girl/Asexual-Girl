@@ -6,7 +6,7 @@ if you know you are gonna get judged, then why dont you do it privately?
 _____________________________________________
 atp shipping minor x adult, relatives, animal x person is alr bad enough
 _____________________________________________
-pro/darkshipping are one of the reason why some fandoms just becomes doomed, like forsaken
+pro/darkshipping are one of the reason why some fandoms just become doomed, like forsaken
 _____________________________________________
 being a creep / freak isnt good
 _____________________________________________
