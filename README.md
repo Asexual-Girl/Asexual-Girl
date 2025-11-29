@@ -1,37 +1,3 @@
-[idk rant:]
-_____________________________________________
-proshippers + darkshippers should dark/proship privately, you lit cant just be in public doing these stuff
-_____________________________________________
-if you know you are gonna get judged, then why dont you do it privately?
-_____________________________________________
-atp shipping minor x adult, relatives, animal x person is alr bad enough
-_____________________________________________
-pro/darkshipping are one of the reason why some fandoms just become doomed, like forsaken
-_____________________________________________
-being a creep / pervert isnt good
-_____________________________________________
-dont even SAY anything abt it being "fiction"
-_____________________________________________
-that's like saying "oh i ship siblings, b- but its fiction!!"
-_____________________________________________
-fiction wont make it better, you are ruining fandoms [unless ur in the tcoaal, its already far gone-]
-_____________________________________________
-just- stop being comfy, ragebait or not, fiction or not, people will gen look at you in disgust
-_____________________________________________
-so just.. do these unholy things somewhere where no one will judge you, but you still arent a good person for it
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=800&color=DCD5D5&width=880&lines=+Hm...+you+ever+notice+the+sign+that+says+'Delictable%3F'+-+Sprout;+The+one+in+the+dining+section%3F+Isn't+it+meant+to+be+'Delectable'%3F+-+Cosmo;...Yeah%2C+yeah+it+is.+-+Sprout;+...+-+Cosmo;+We're+not+fixing+it+are+we%3F+-+Sprout;+Hehehe-+Nope!+-+Cosmo)](https://git.io/typing-svg)
 
-anylays, bye bye!!!
-_____________________________________________
-
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/39be39bd-68a0-400c-9714-80ce07d7a365" />
-
-<img width="1500" height="500" alt="Untitled63_20251124041024" src="https://github.com/user-attachments/assets/0b9e421d-6809-47bb-a1bc-0f7f48b2620c" />
-
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=33587B&background=E1FFC300&width=435&lines=%E2%80%8B%F0%9F%87%AE%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B+%E2%80%8B%F0%9F%87%A6%E2%80%8B+%E2%80%8B%F0%9F%87%A9%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%AC%E2%80%8B+%E2%80%8B%F0%9F%87%A6%E2%80%8B%E2%80%8B%F0%9F%87%B3%E2%80%8B%E2%80%8B%F0%9F%87%A9%E2%80%8B+%E2%80%8B%F0%9F%87%AE%E2%80%8B+%E2%80%8B%F0%9F%87%B1%E2%80%8B%E2%80%8B%F0%9F%87%AE%E2%80%8B%E2%80%8B%F0%9F%87%B0%E2%80%8B%E2%80%8B%F0%9F%87%AA%E2%80%8B+%E2%80%8B%F0%9F%87%B8%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%A8%E2%80%8B%E2%80%8B%F0%9F%87%B0%E2%80%8B%E2%80%8B%F0%9F%87%B8%E2%80%8B;%C9%AA+%CA%9F%C9%AA%E1%B4%8B%E1%B4%87+%EA%9C%B1%E1%B4%8F%E1%B4%84%E1%B4%8B%EA%9C%B1%2C+%C9%AA%E1%B4%8D+%E1%B4%80+%E1%B4%85%E1%B4%8F%C9%A2;%E2%80%8B%F0%9F%87%AE%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B+%E2%80%8B%F0%9F%87%A6%E2%80%8B+%E2%80%8B%F0%9F%87%A9%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%AC%E2%80%8B+%E2%80%8B%F0%9F%87%A6%E2%80%8B%E2%80%8B%F0%9F%87%B3%E2%80%8B%E2%80%8B%F0%9F%87%A9%E2%80%8B+%E2%80%8B%F0%9F%87%AE%E2%80%8B+%E2%80%8B%F0%9F%87%B1%E2%80%8B%E2%80%8B%F0%9F%87%AE%E2%80%8B%E2%80%8B%F0%9F%87%B0%E2%80%8B%E2%80%8B%F0%9F%87%AA%E2%80%8B+%E2%80%8B%F0%9F%87%B8%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%A8%E2%80%8B%E2%80%8B%F0%9F%87%B0%E2%80%8B%E2%80%8B%F0%9F%87%B8%E2%80%8B;%C9%AA+%CA%9F%C9%AA%E1%B4%8B%E1%B4%87+%EA%9C%B1%E1%B4%8F%E1%B4%84%E1%B4%8B%EA%9C%B1%2C+%C9%AA%E1%B4%8D+%E1%B4%80+%E1%B4%85%E1%B4%8F%C9%A2;%E2%80%8B%F0%9F%87%AC%E2%80%8B%E2%80%8B%F0%9F%87%AE%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B%E2%80%8B%F0%9F%87%AA%E2%80%8B+%E2%80%8B%F0%9F%87%B9%E2%80%8B%E2%80%8B%F0%9F%87%AD%E2%80%8B%E2%80%8B%F0%9F%87%A6%E2%80%8B%E2%80%8B%F0%9F%87%B9%E2%80%8B+%E2%80%8B%F0%9F%87%B8%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%A8%E2%80%8B%E2%80%8B%F0%9F%87%B0%E2%80%8B%2C+%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B+%E2%80%8B%F0%9F%87%B3%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B+%E2%80%8B%F0%9F%87%B3%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B!;%E2%80%8B%F0%9F%87%AC%E2%80%8B%E2%80%8B%F0%9F%87%AE%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B%E2%80%8B%F0%9F%87%AA%E2%80%8B+%E2%80%8B%F0%9F%87%B9%E2%80%8B%E2%80%8B%F0%9F%87%AD%E2%80%8B%E2%80%8B%F0%9F%87%A6%E2%80%8B%E2%80%8B%F0%9F%87%B9%E2%80%8B+%E2%80%8B%F0%9F%87%B8%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%A8%E2%80%8B%E2%80%8B%F0%9F%87%B0%E2%80%8B%2C+%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B+%E2%80%8B%F0%9F%87%B3%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B+%E2%80%8B%F0%9F%87%B3%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%B2!;%E2%80%8B%F0%9F%87%AE%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B+%E2%80%8B%F0%9F%87%A6%E2%80%8B+%E2%80%8B%F0%9F%87%A9%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%AC%E2%80%8B+%E2%80%8B%F0%9F%87%A6%E2%80%8B%E2%80%8B%F0%9F%87%B3%E2%80%8B%E2%80%8B%F0%9F%87%A9%E2%80%8B+%E2%80%8B%F0%9F%87%AE%E2%80%8B+%E2%80%8B%F0%9F%87%B1%E2%80%8B%E2%80%8B%F0%9F%87%AE%E2%80%8B%E2%80%8B%F0%9F%87%B0%E2%80%8B%E2%80%8B%F0%9F%87%AA%E2%80%8B+%E2%80%8B%F0%9F%87%B8%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%A8%E2%80%8B%E2%80%8B%F0%9F%87%B0%E2%80%8B%E2%80%8B%F0%9F%87%B8%E2%80%8B+%E2%80%8B%F0%9F%87%AB%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%B7%E2%80%8B+%E2%80%8B%F0%9F%87%B8%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%B2%E2%80%8B%E2%80%8B%F0%9F%87%AA%E2%80%8B+%E2%80%8B%F0%9F%87%B7%E2%80%8B%E2%80%8B%F0%9F%87%AA%E2%80%8B%E2%80%8B%F0%9F%87%A6%E2%80%8B%E2%80%8B%F0%9F%87%B8%E2%80%8B%E2%80%8B%F0%9F%87%B4%E2%80%8B%E2%80%8B%F0%9F%87%B3%E2%80%8B;%E1%B4%B0%E1%B4%BC%E1%B4%BA%E1%B5%80++%E1%B4%B6%E1%B5%81%E1%B4%B0%E1%B4%B3%E1%B4%B1+%E1%B4%B9%E1%B4%B1)](https://git.io/typing-svg)
-
-
-[![Hits](https://hits.sh/github.com/Asexual-Girl/hits.svg?label=%E2%82%9A%E1%B5%A4%E2%82%9Ac%E1%B5%A4%E2%82%9A%20!&extraCount=200&color=a7bfcf&labelColor=e9eece)](https://hits.sh/github.com/Asexual-Girl/hits/)
-
-twin made a sigma graphic yay
-
+ts a wip ok??
