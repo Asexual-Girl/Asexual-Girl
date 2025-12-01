@@ -4,3 +4,4 @@
 yay new graphic [idk what to call this]
 
 ![ִֶָ𓂃 ࣪˖ ִֶָ🎀་༘࿐](https://github.com/user-attachments/assets/c3e24ad0-5c3f-4f2f-bcce-40c53a545c07)
+cred to who made ts
