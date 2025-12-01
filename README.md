@@ -2,4 +2,5 @@
 
 <img width="2048" height="2048" alt="Untitled72_20251130052528" src="https://github.com/user-attachments/assets/eceb1efa-cb7d-48a9-aaad-ab8cedf272e5" />
 yay new graphic [idk what to call this]
+
 ![ִֶָ𓂃 ࣪˖ ִֶָ🎀་༘࿐](https://github.com/user-attachments/assets/c3e24ad0-5c3f-4f2f-bcce-40c53a545c07)
