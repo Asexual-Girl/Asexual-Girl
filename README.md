@@ -1,4 +1,3 @@
-[<img width="233" height="87" alt="Screenshot 2025-12-02 202016" src="https://github.com/user-attachments/assets/d6338abf-dfc6-456b-91fb-1b3c792157dc" /> hey guys this is [@SoullessJam] coq's copycat, idk bro.. 
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=800&color=DCD5D5&width=880&lines=+Hm...+you+ever+notice+the+sign+that+says+'Delictable%3F'+-+Sprout;+The+one+in+the+dining+section%3F+Isn't+it+meant+to+be+'Delectable'%3F+-+Cosmo;...Yeah%2C+yeah+it+is.+-+Sprout;+...+-+Cosmo;+We're+not+fixing+it+are+we%3F+-+Sprout;+Hehehe-+Nope!+-+Cosmo)
 
