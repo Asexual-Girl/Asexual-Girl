@@ -1,4 +1,4 @@
-<img width="2048" height="2048" alt="Untitled75_0000-53-51" src="https://github.com/user-attachments/assets/8a44ddba-87af-49ec-8acd-ec43895ec968" /> eh cant erase the color palette ugh
+<img width="2048" height="2048" alt="Untitled75_0000-53-51" src="https://github.com/user-attachments/assets/8a44ddba-87af-49ec-8acd-ec43895ec968" /> eh cant erase the color palette ugh and yes heliummask mentioned
 
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=800&color=DCD5D5&width=880&lines=+Hm...+you+ever+notice+the+sign+that+says+'Delictable%3F'+-+Sprout;+The+one+in+the+dining+section%3F+Isn't+it+meant+to+be+'Delectable'%3F+-+Cosmo;...Yeah%2C+yeah+it+is.+-+Sprout;+...+-+Cosmo;+We're+not+fixing+it+are+we%3F+-+Sprout;+Hehehe-+Nope!+-+Cosmo)
