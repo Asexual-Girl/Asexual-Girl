@@ -4,8 +4,8 @@
                             hihi im asexual-girl [or somi] u prob have seen me EVERYWHERE
 -
                                  now here r my dnis ints and ppl you should follow
-
-.   DNI: pedos , darkshippers / proshippers , nazis , racists , homophobs + transphobs ehh u know the rest [btw all ages can int freely!!]
+.
+            DNI: pedos , darkshippers / proshippers , nazis , racists , homophobs + transphobs ehh u know the rest [btw all ages can int freely!!]
 .
 
                            INTS: dandys world , piggy , lego monkie kid , crk / crob
