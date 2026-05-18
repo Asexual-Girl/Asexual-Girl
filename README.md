@@ -1,4 +1,5 @@
-<img width="2732" height="1392" alt="Untitled29_20260516233106" src="https://github.com/user-attachments/assets/45ab7de2-b254-40c6-97a2-4851af4a40fa" /> 
+<img width="1920" height="1080" alt="Untitled38" src="https://github.com/user-attachments/assets/22fc9f51-d279-4a15-9e87-d50f725b480d" />
+ 
 
 -
                             hihi im asexual-girl [or somi] u prob have seen me EVERYWHERE
