@@ -1,24 +1,7 @@
-<img width="1920" height="1080" alt="Untitled38" src="https://github.com/user-attachments/assets/22fc9f51-d279-4a15-9e87-d50f725b480d" />
- 
+<img width="2048" height="1536" alt="Untitled46_20260522005938" src="https://github.com/user-attachments/assets/c5b66d5f-eb73-4935-bf90-64958bffe55a" />
 
--
-                            hihi im asexual-girl [or somi] u prob have seen me EVERYWHERE
--
-                                 now here r my dnis ints and ppl you should follow
-.                                                                                                                                  DNI: pedos , darkshippers / proshippers , nazis , racists , homophobs + transphobs ehh u know the rest [btw all ages can int freely!!]
-.
+<img width="2048" height="1536" alt="Untitled46_20260522005952" src="https://github.com/user-attachments/assets/c7ca31e0-df69-4b44-8c42-78c7b70f5466" />
 
-                           INTS: dandys world , piggy , lego monkie kid , crk / crob
-.
+<img width="2048" height="1536" alt="Untitled46_20260522005944" src="https://github.com/user-attachments/assets/740d08d5-e0e3-4737-a0cb-c3ccb0419466" />
 
-                                       FOLLOW THEM: eh in my company-
-.
-
-                                             "hi may i c+h/" yes
-.
- 
-                                          "may we be friends?" yes
-.
-
-                                            "may we match-" YES
-.
+<img width="2048" height="1536" alt="Untitled46_20260522005944" src="https://github.com/user-attachments/assets/96836050-10d7-4733-8c4b-8f3d23f162d1" />
