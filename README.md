@@ -1,7 +1,5 @@
 # stuff i made for funsies yay
 
-<img width="2048" height="2048" alt="Untitled50_20260523193127" src="https://github.com/user-attachments/assets/19cad70d-a4de-4181-aabb-c114dc8229ac" />
-
 <img width="2048" height="2048" alt="Untitled50_20260523193127" src="https://github.com/user-attachments/assets/400cc661-7c42-43f4-9a2f-0b4138bece75" />
 
 <img width="2048" height="2048" alt="Untitled50_20260523193127" src="https://github.com/user-attachments/assets/65a81a61-b3d4-4a75-8b01-a5ed178ced07" />
