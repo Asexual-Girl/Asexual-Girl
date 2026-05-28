@@ -1,4 +1,4 @@
-# worst dream of my life...
+# i wonder if i make my githubby about circusdrama.. [rnd x looey]
 <img width="2048" height="2048" alt="Untitled50_20260523194347" src="https://github.com/user-attachments/assets/473ee5ce-f1d5-4651-a228-0b9578aade60" />
 
 <img width="2048" height="2048" alt="Untitled50_20260523193132" src="https://github.com/user-attachments/assets/92441f4a-bfa9-4c54-9ed4-467d1a63a4b2" />
