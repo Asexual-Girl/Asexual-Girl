@@ -1,3 +1,5 @@
+. Silver Paw
+
 🐺
 <img width="736" height="736" alt="willow x tigry" src="https://github.com/user-attachments/assets/e41390cc-a76a-4d25-bbda-3875ac7647f2" />
 # HAPPY PRIDE MONTH
