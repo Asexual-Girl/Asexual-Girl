@@ -1,9 +1,4 @@
-. Silver Paw
+<img width="735" height="1027" alt="マジカパーティ MZ-EX マジカパック エピソード1 L 初回限定版 _商品情報｜マジカパーティ｜タカラトミー" src="https://github.com/user-attachments/assets/f08f04d5-a585-4df1-ac19-958a4bcf0936" />
 
-🐺
-<img width="736" height="736" alt="willow x tigry" src="https://github.com/user-attachments/assets/e41390cc-a76a-4d25-bbda-3875ac7647f2" />
-# HAPPY PRIDE MONTH
-
-<img width="735" height="713" alt="Tigry and Willow" src="https://github.com/user-attachments/assets/546b859a-b09b-468d-b6b3-5bbc23338f8e" />
-
-#                                       CUZ WE'RE FRIENEMIES TILL THE END!!!!!!!
+<img width="735" height="1027" alt="マジカパーティ MZ-EX マジカパック エピソード1 L 初回限定版 _商品情報｜マジカパーティ｜タカラトミー" src="https://github.com/user-attachments/assets/dd1e650a-08f5-4184-8de6-fd4c681c0b26" />
+# 🎈🐱 what else do i add lowke 
