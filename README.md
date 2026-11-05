@@ -15,8 +15,6 @@
 
 <img width="370" height="320" alt="بدون اسم276_20261105213743" src="https://github.com/user-attachments/assets/23ee8c2f-1342-4f34-a029-db822b5a0202" />
 
-<img width="2048" height="2048" alt="بدون اسم270_20261104065244" src="https://github.com/user-attachments/assets/0e4ff0de-37f0-4e5b-a702-f785a3570eef" />
-
 <img width="2048" height="2048" alt="بدون اسم270_20261103190442" src="https://github.com/user-attachments/assets/8b70dad2-f28d-43ae-a0dd-7b275274c11a" />
 
 <img width="1500" height="500" alt="بدون اسم275_20261105213525" src="https://github.com/user-attachments/assets/a34ffaca-63a2-486c-89e1-3fd94b9e6b3d" />
