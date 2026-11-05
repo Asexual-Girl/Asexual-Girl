@@ -11,8 +11,6 @@
 
 <img width="2048" height="2048" alt="بدون اسم270_20261104062445" src="https://github.com/user-attachments/assets/0851fac9-ba68-4f3f-a27f-5e022bd77b17" />
 
-<img width="2048" height="2048" alt="بدون اسم270_20261104064300" src="https://github.com/user-attachments/assets/0cfcf438-c8c5-473c-a4b6-fd489b374d06" />
-
 . ( burp hi I'm somi how ar u doing hi ily guys ) . 
 
 <img width="370" height="320" alt="بدون اسم276_20261105213743" src="https://github.com/user-attachments/assets/23ee8c2f-1342-4f34-a029-db822b5a0202" />
